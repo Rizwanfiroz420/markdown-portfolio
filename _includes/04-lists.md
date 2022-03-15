@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Nahdi mandhi
+2. Sugam hotel
+3. Vasunte chaya kada
